@@ -1,0 +1,1 @@
+<code>All rights reserved &copy; 2025. | Tanvir | </code>
